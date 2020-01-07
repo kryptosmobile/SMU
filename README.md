@@ -1,0 +1,2 @@
+# SMU
+Samuel Merritt University
